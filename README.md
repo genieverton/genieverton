@@ -12,3 +12,4 @@ Aqui estão algumas ideias para você começar:
 - 😄 Pronomes: ele/dele
 - ⚡ Curiosidade: sou muito bom no futebol
 -->
+  ![](https://media1.tenor.com/m/xr-HJ_EtdggAAAAd/cr7eu-sou-melhor.gif)
